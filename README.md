@@ -1,0 +1,2 @@
+# invoice_factoring
+M1xchange TReDS is a digital marketplace to sell the receivables to banks/NBFC set up under the approval of Reserve Bank of India (RBI) to facilitate the discounting of invoices and bills of exchange on a PAN India basis. So if you are looking for changing your Invoice Factoring Company it’s the golden opportunity as there is “No Registration Fee for MSMEs till 31st March 2021.
